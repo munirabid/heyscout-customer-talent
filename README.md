@@ -1,0 +1,1 @@
+# heyscout-customer-talent
